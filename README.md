@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-FESR920105HTCRNY05
+FESR920105HTCRNY05
